@@ -1,9 +1,9 @@
 --free-xbox-gift-cards-codes...Rewards-In-now-----
 
-**[Get Click Here For Link]((https://ccgeneratorr.com/mmxbo22x/))**
+**[Get Click Here For Link](https://ccgeneratorr.com/mmxbo22x/)**
 
 
-**[Get Click Here For Link]((https://ccgeneratorr.com/mmxbo22x/))**
+**[Get Click Here For Link](https://ccgeneratorr.com/mmxbo22x/)**
 
 Unlock the World of Gaming with Free Xbox Gift Cards
 
